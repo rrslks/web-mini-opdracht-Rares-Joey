@@ -1,1 +1,0 @@
-# web-mini-opdracht-Rares-Joey
